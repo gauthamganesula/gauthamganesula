@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on data-driven projects and analytics.
 
-📫 How to reach me: - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/gauthamganesula/)
+📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/gauthamganesula/)
 
 
 😄 Pronouns: He/Him
